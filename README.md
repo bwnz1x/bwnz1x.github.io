@@ -1,2 +1,3 @@
 # bwnz1x.github.io
-bwnz1x site
+i dont know what to do with this
+hopefully something funny
